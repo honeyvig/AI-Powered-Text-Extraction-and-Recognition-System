@@ -1,0 +1,1 @@
+# AI-Powered-Text-Extraction-and-Recognition-System
